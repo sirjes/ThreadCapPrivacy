@@ -20,6 +20,6 @@ We do not sell, share, or transfer any user data to third parties under any circ
 If we update our privacy policy, we will publish those changes on this page.
 
 ## Contact
-If you have any questions about this privacy policy, please contact [your email or contact information].
+If you have any questions about this privacy policy, please contact keamouns@gmail.com.
 
 Last updated: March 29, 2024 
